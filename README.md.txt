@@ -1,1 +1,0 @@
-My name is Taylor and I like turtles
